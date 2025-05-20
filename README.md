@@ -1,0 +1,1 @@
+# photoshop-ai-license-activation
